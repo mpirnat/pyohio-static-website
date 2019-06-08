@@ -38,7 +38,7 @@ Your sponsorship dollars will cover the cost of the conference including venue r
 
 ### Swag Bag - $3000 (limit 1)
 
-* Your logo will appear conference swag bags
+* Your logo will appear on conference swag bags
 * All benefits of Platinum Sponsorship
 
 ### Lanyard - $3000 (limit 1)
